@@ -1,0 +1,1 @@
+# Stars-Game-no-cooldown-hack
